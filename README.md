@@ -10,4 +10,4 @@ I love to work among groups and I contribute to open source to sharpen my proble
 while youre here, yoy can engage me on the following profiles
 [follow me on twitter](https://twitter.com/drabdrahaman_)
 
-[check out my linkedIn profile](https://linkedin.com/drabdrahaman)
+[check out my linkedIn profile](https://www.linkedin.com/in/drabdrahaman)
