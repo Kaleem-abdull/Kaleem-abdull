@@ -9,6 +9,6 @@ I am a frontend development learner, HTML, CSS, Tailwindcss and javascript. I bu
 I love to work among groups and I contribute to open source to sharpen my problem solving skills and effective communication skills.
 
 while youre here, you can engage me on the following profiles
-[follow me on twitter](https://twitter.com/m_rahamann_)
+[follow me on twitter](https://twitter.com/m_rahamann)
 
 [check out my linkedIn profile](https://www.linkedin.com/in/drabdrahaman)
